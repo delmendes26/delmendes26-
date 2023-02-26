@@ -1,1 +1,1 @@
-# delmendes26-
+The app is very good but after the update it is necessary to add again and this is very frustrating as well as the changes / corrections I made about the book name, cover and author's name.  In the new version, the option to change the author's name simply disappeared, come back with this option please.
